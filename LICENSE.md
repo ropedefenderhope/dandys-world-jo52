@@ -1,4 +1,4 @@
-
+dandy's world exclusive Scripts is the best dandy's world Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
